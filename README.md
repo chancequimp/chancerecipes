@@ -1,1 +1,1 @@
-wsg bro we made a website
+bro so what we did here was make a main page for some stuff and then 3 sub pages and we didnt come up with the best answers but theyre answers bro
